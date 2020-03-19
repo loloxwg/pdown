@@ -6,7 +6,7 @@
 ![demo](down600.gif)
 
 
-#### [蓝奏云 下载地址  https://www.lanzous.com/iaeur5g](https://www.lanzous.com/iaeur5g)
+#### [蓝奏云 下载地址  https://www.lanzous.com/iaf304h](https://www.lanzous.com/iaf304h)
 ---
 ### 1.安装使用
 
