@@ -6,6 +6,7 @@
 ![demo](down600.gif)
 
 
+[蓝奏云 下载地址](https://www.lanzous.com/iaeur5g)
 ---
 ### 1.安装使用
 
